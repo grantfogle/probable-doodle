@@ -1,0 +1,1 @@
+"So do all who live to see such times but that is not for them to decide. All we have to decide is what to do with the time that is given to us." - Gandalf the Grey
